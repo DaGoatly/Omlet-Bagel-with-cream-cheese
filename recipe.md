@@ -1,0 +1,1 @@
+First fry two eggs with pickle, butter and olive oil in a pan to make an omlet. Then toast a bagel and apply cream cheese to it. After that, fold the omlet then put it in the middle and you're done.

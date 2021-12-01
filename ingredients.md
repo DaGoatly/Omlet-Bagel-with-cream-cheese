@@ -1,0 +1,1 @@
+eggs, butter, cream cheese, bagel, olive oil, pickle.
